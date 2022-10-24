@@ -1,0 +1,2 @@
+# discord-hypesquad
+Discord Token GEN, DISCORD TOKEN JOINER, DISCORD HCAPTCHA BYPASS
