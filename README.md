@@ -1,6 +1,6 @@
 # discord-hypesquad
 Finally in Python - Discord Token GEN, DISCORD TOKEN JOINER, DISCORD HCAPTCHA BYPASS AND MORE.
 
-Will Update Soon Here. 
+Will Update Soon Here. TOKEN JOINER WILL BE FREE AND UPDATED HERE BUT NOT THE GEN. FOR GEN PLEASE CONTACT ME DIRECTLY.
 
 For updates contact : TG: 0xCloak
